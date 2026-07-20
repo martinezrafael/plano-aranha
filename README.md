@@ -1,4 +1,4 @@
 # plano-aranha
-Tranformar o Homem Aranha em um CLT ou um PJ bem rerumerado.
+Tranformar o Homem Aranha em um CLT ou um PJ bem remunerado.
 
 <img src="./Gemini_Generated_Image_mk03l3mk03l3mk03.png" />
